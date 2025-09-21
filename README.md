@@ -1,0 +1,1 @@
+# Climate-Change-Adaptation-Practices-Among-Smallholder-Farmers-and-Their-Implications-for-Livelihood
